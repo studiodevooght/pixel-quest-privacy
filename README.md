@@ -174,6 +174,6 @@ Updates will be published on this page, and the date at the top will be revised.
 For privacy-related questions, concerns, or requests, please contact:
 
 **Studio De Vooght**  
-**Email:** [INSERT YOUR CONTACT EMAIL]
+**Email:** studiodevooght@gmail.com
 
 We will review privacy-related requests and respond in accordance with applicable law.
